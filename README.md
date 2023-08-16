@@ -15,6 +15,8 @@ Best Gay Movies Online Of Asia
 ```
 # vg-g8 nanyanshipin男颜视频最新网址：
 
+https://nanyan.one （2023.8.16更新）
+
 https://nanyan.lat
 
 https://nanyan.quest
