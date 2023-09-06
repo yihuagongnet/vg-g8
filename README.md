@@ -13,11 +13,11 @@ Best Gay Movies Online Of Asia
 
 也可以发邮件索取最新网址:yihuagongnet@gmail.com
 ```
-![image](https://github.com/yihuagongnet/vg-g1/assets/141849781/f197cd88-2a37-44fc-8940-d898f845249d)
+![image](https://github.com/yihuagongnet/vg-g1/assets/141849781/9e663972-a51d-442c-be92-e6270d779ed4)
 
-下载地址：https://b91.gay/x
+下载地址：https://xgay.cc/g
 
-**X瀏覽器集成並實現智能獲取本站最新的網址，再也不用擔心找不到本站的網址**
+**G瀏覽器集成並實現智能獲取本站最新的網址，再也不用擔心找不到本站的網址**
 # vg-g8 nanyanshipin男颜视频最新网址：
 
 https://nanyan.one （2023.8.16更新）
